@@ -29,7 +29,7 @@ of course.
 
 basic dni : 12- & 18+!
 
-ty, @sobertonight for your help with this layout ! ^^
+ty, [@sobertonight](https://github.com/sobertonight) for your help with this layout ! ^^
 ##### ㅤㅤㅤㅤㅤㅤㅤ  links ! 𓏲ּ𝄢
 ㅤㅤ𓆩 [ata.ㅤ 𓏼 ݁⋆](https://arii.atabook.org/) [strawpge. ㅤ𓏼 ݁⋆](https://jadewolf.straw.page/) 𓆪! ㅤ
 ###### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmore on my bio/links
